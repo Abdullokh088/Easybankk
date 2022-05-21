@@ -1,0 +1,2 @@
+# Easybankk
+easybank asosiy qism 
